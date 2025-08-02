@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cybersecurity, web applications and football.
 - 🌱 I’m currently learning ... BS(Cybersecurity) from DHA Suffa University
 - 💞️ I’m looking to collaborate on ... any project to learn and share my knowledge
-- 📫 How to reach me ... talhaahmed8760@gmail.com
+- 📫 How to reach me ... wait please
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... 
 
